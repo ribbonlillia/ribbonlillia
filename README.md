@@ -1,9 +1,9 @@
 # me core (not clickbait)
 ### i have many names
 
-mackenzie, ophelia, bunnie, engel, kou ETC.
+mackenzie, ophelia, bun, engel, koushi, celeste, ETC.
 
-but i only use the first 2
+but i only use the first 3
 
 BTW MY PFP IS NOE AKA MY FURSONA HII HEY awoooooo
 
