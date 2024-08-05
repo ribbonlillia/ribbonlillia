@@ -5,7 +5,6 @@ mackenzie, ophelia, bun, engel, koushi, celeste, ETC.
 
 but i only use the first 3
 
-BTW MY PFP IS NOE AKA MY FURSONA HII HEY awoooooo
 
 ![](https://i.imgur.com/5tNd5AP.png)![](https://y2k.neocities.org/stamps/54.png) ![](https://supplies.ju.mp/assets/images/gallery01/7b039076.gif?v=9163b103) ![](https://supplies.ju.mp/assets/images/gallery01/6a4d2428.gif?v=9163b103)
 
