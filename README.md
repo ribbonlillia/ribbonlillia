@@ -11,5 +11,5 @@ all pronouns ⠀⠀⠀ any terms
 <p/> 
 
  
- ⠀⠀⠀ ⠀⠀ ⠀⠀⠀  ⠀⠀⠀ ⠀⠀⠀   ⠀⠀⠀ ⠀⠀⠀   ⠀⠀⠀⠀   ⠀⠀⠀⠀   ⠀⠀⠀⠀   ⠀⠀  [strawpage](https://nyankoushi.straw.page/)⠀⠀⠀⠀⠀⠀[pronouns.cc](https://pronouns.cc/@cupidtear)
+ ⠀⠀⠀ ⠀⠀ ⠀⠀⠀  ⠀⠀⠀ ⠀⠀⠀   ⠀⠀⠀ ⠀⠀⠀   ⠀⠀[strawpage](https://nyankoushi.straw.page/)⠀⠀⠀⠀⠀⠀[pronouns.cc](https://pronouns.cc/@cupidtear)⠀⠀⠀⠀⠀⠀[help palestine](https://arab.org/click-to-help/palestine/)
 
