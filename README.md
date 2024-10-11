@@ -19,6 +19,6 @@ all pronouns ⠀⠀⠀ any terms
 <p/> 
 
  ⠀⠀⠀<p align="center">  
-[help palestine](https://arab.org/click-to-help/palestine/) ⠀⠀⠀ [my rentry](https://rentry.co/pixelfawn)
+[help palestine](https://arab.org/click-to-help/palestine/) ⠀⠀⠀ 
 </p>
 
