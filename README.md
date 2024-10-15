@@ -1,12 +1,12 @@
    <p align="center">
-   mackenzie lichloathe !! 
+   🍀​ mackenzie lichloathe !! 
  </p>
   <p align="center">
 ken or lillia ⠀,⠀for short 
    </p>
 
 <p align="center">
-all pronouns and terms ⠀⠀⠀ neutral preference
+all pronouns and terms ⠀⠀​🌐​⠀ neutral preference
  </p>
  
  ⠀⠀⠀<p align="center">
@@ -14,11 +14,11 @@ all pronouns and terms ⠀⠀⠀ neutral preference
 </p> 
 
  ⠀⠀⠀<p align="center">  
-[help palestine](https://arab.org/click-to-help/palestine/) ⠀⠀⠀ 
+[help palestine](https://arab.org/click-to-help/palestine/) ⠀⠀⠀ [extended rentry](https://rentry.co/ribbonlillia)
 </p>
 
 ⠀⠀⠀<p align="center">
-![](https://i.pinimg.com/564x/77/65/5a/77655a7d1adf9a9b289be609b764295d.jpg)
+![](https://i.pinimg.com/736x/45/04/2b/45042b3a0b2b5072a4d108b2a1ff786f.jpg)
 <p/> 
  
  ⠀⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀      <p align="center">
