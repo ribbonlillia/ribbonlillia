@@ -2,7 +2,7 @@
    🍀​ mackenzie lichloathe !! 
  </p>
   <p align="center">
-ken or lillia ⠀,⠀for short 
+or kenzie  ,⠀for short 
    </p>
 
 <p align="center">
