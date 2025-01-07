@@ -6,7 +6,7 @@
    </p>
 
 <p align="center">
-all pronouns and terms ⠀⠀​🎀​​⠀ neutral preference
+any prns  and ⠀terms⠀​🎀​​⠀ except fem ones
  </p>
 
   ⠀⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀      <p align="center">
