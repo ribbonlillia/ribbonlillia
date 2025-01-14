@@ -1,12 +1,9 @@
    <p align="center">
-   azazel ​🩰!! 
+   azazel ​🩰 
  </p>
-  <p align="center">
- mackenzie  ,⠀or lillia
-   </p>
-
+  
 <p align="center">
-any prns  and ⠀terms⠀​🎀​​⠀ except fem ones
+any pronouns⠀​🎀​​⠀ and terms
  </p>
 
   ⠀⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀      <p align="center">
